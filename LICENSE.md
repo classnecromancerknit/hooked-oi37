@@ -1,4 +1,4 @@
-#  
+#  hooked Scripts exclusive is the best hooked Script, featuring auto-sell and instant win. Safe and powerful for all your needs.
 
 
 
